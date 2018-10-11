@@ -9,8 +9,6 @@ Or, if you're not a web developer or any form of techie and would rather catch u
 
 - [The ADRICULOUS Life](https://adriculous.life)
 - [Symmetry](https://symmetry.adriculous.life)
-- [Adri Mars](https://adrimars.me)
-
-Or you can even join my new small creatives forum at [Wellspring Dreams Club](http://wellspringdreams.club).
+- [Adri Mars](https://adrimars.ink)
 
 Thank you, till next time!
